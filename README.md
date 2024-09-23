@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Eduarddopy
+- 🌱 I’m currently learning
+- ⚡ Fun fact: Living la vida loca
